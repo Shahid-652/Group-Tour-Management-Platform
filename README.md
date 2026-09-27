@@ -1,1 +1,0 @@
-# Group-Tour-Management-Platform
